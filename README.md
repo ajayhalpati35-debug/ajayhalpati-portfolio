@@ -1,1 +1,1 @@
-file:///C:/Users/Admin/Downloads/gemini-code-1788294999816.html
+file:///C:/Users/Admin/Downloads/Ajay_Halpati_Portfolio_With_Photo.html#contact
